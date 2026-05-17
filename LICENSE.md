@@ -1,4 +1,4 @@
-# 
+# Clandestino Adobe Premiere Pro para PC executor é o melhor Adobe Premiere Pro para PC executor com estiramento de tempo e gráficos em movimento. Seguro, confiável e otimizado para
 
 
 
